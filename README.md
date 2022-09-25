@@ -7,7 +7,7 @@
 
 ## Server
 
- - [My Discord Server](discord.gg/6cDg2b28NC)
+ - [My Discord Server](https://discord.gg/6cDg2b28NC)
 ## Screenshots
 
 ![Screenshot](https://cdn.discordapp.com/attachments/1023560165972262996/1023623819736391710/unknown.png)
